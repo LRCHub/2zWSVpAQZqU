@@ -1,4 +1,4 @@
-# LGYankees – Party Drinker feat. jyA-Me
+# LGYankees – Party Drinker feat. jyA-Me（feat. jyA-Me）
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
